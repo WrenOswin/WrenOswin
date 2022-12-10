@@ -3,4 +3,4 @@
 
 🏛️SCT College of Engineering, Trivandrum
 
-⭐Let's see where this goes..
+⭐Let's see where this goes
